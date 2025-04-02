@@ -1,1 +1,1 @@
-# games
+If you want to start gambling but don’t really understand the differences between all the games yet or what would be the best choice for you, I’d suggest starting with slots. There are tons of them. Some are classic, and others are newer like [Blast the Bass - Slot game](https://belatragames.com/en/games/game/blast-the-bass). The best thing about them is their simple mechanics, but that doesn’t take away from the fact that they’re easy to understand, fun, and dynamic gambling games.
